@@ -32,6 +32,8 @@ In my spare time, I could more than likely be found somewhere on Twitter, my hea
 I'm a foodie, but with age comes wisdom, and a few years ago my wisdom started telling me to not eat bad foods consistently. Burgers, fries, pizza, pasta, burritos, you name it! I'm also quite intrigued by entrepreneurship and the sheer fact that with certain skillsets, you can build something from scratch and sell it if it actually fulfills a real need.
 
 ### Education
+Software Engineering & Computer Science - App Academy '20
+
 MBA - Master’s of Business Administration ‘17 University of North Texas
 
-BS - Logistics & Supply Chain Management ‘14 University of North Texa
+BS - Logistics & Supply Chain Management ‘14 University of North Texas
